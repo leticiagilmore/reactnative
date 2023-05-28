@@ -1,2 +1,2 @@
 # reactnative
-socorroooooooooo
+socorroooooooooo, sor, desisto da vida!!!!
